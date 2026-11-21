@@ -66,7 +66,7 @@ Mechanical Design | Manufacturing | Production | Quality | Maintenance
 
 ### 📫 Connect With Me
 
-LinkedIn: Add your LinkedIn profile link  
-Email: Add your email address
+LinkedIn: https://www.linkedin.com/in/prince-kumar-a0a6a52a6/ 
+Email: princekr15032000@gmail.com
 
 > Learning. Designing. Improving. Engineering the Future.
